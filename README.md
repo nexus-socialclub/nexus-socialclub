@@ -1,4 +1,4 @@
-## All Rights Reserved To 4min3 GFX 👋
+## All Rights Reserved To 4min3 GFX ❗
 
 <!--
 **nexus-socialclub/nexus-socialclub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
